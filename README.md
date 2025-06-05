@@ -5,7 +5,7 @@
 
 ✦ i typically dont give out my discord to strangers so pls dont ask! besides that however pls feel free to interact!! im always open to making new friends but i might be awkward at first so :sob:
 
-✦ i like a lot of things, but i'm mainly dressed in ponies from kingsman, ace attorney, and rick and morty!! tho it kinda depends on what im into atm, im almost always at some point in a kingsman pony LOL
+✦ i like a lot of things, but i'm mainly dressed as ponies from kingsman, ace attorney, and rick and morty!! tho it kinda depends on what im into atm, im almost always at some point in a kingsman pony LOL
 
 ✦ basic dni but also no proshippers or maga :P
 
